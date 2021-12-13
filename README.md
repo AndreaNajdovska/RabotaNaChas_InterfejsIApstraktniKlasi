@@ -1,0 +1,1 @@
+# RabotaNaChas_InterfejsIApstraktniKlasi
